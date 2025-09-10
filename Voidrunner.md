@@ -1,3 +1,0 @@
-# Voidrunner
-
-*Content coming soon...*
